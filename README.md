@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LepolaLauri
 - 👀 I’m interested in computers
-- 🌱 I’m currently learning been a old man
+- 🌱 I’m currently learning been an old man
 - 💞️ I’m looking to collaborate on AI
 - 📫 How to reach me : pray computer God
 
